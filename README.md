@@ -10,3 +10,5 @@
  and thrust plate for added structural strength. The team was conceived in early 2016 to nurture
  rocketry as a hobby in India, and by competing at the Spaceport America Cup, the team will get
  a platform to share its knowledge and learn from fellow students from all around the world.
+![image](https://github.com/user-attachments/assets/a4a6a514-c977-4a95-9e6d-521519186680)
+![image](https://github.com/user-attachments/assets/53097ac7-2ee0-4881-aa6b-ae3f24f37b42)
